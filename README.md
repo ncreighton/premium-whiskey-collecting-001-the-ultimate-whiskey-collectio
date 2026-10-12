@@ -1,0 +1,2 @@
+# premium-whiskey-collecting-001-the-ultimate-whiskey-collectio
+Tired of forgetting which bottle you opened last month or whether that rare Pappy is worth its current market price? Stop hunting through sticky notes and start tracking like a master distiller.  This Notion template transforms your whiskey hobby into a meticulously organized digital cellar. With one click, you log every pour, compare flavor profil
